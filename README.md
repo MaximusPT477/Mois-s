@@ -1,2 +1,0 @@
-# Mois-s
-ajudem me
